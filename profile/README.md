@@ -11,7 +11,7 @@ We’re a diverse group of creators who bring unique skills to the table. Want t
 
 ## Contact & Community
 📧 Email: [khilko08@gmail.com]  
-💬 Discord/Slack: [your-community-link]  
+💬 Discord/Slack: [[IoTFansKPI](https://discord.gg/W3tBW53p)]  
 
 ---
 
